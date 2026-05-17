@@ -17,5 +17,5 @@ Competências: Resolução de problemas, Trabalho em equipe, Metodologias Ágeis
 ---
 
 📫 Para contato
-LinkedIn: www.linkedin.com/in/ana-cabreira-viveros
+LinkedIn: www.linkedin.com/in/ana-cabreira-viveros-524983262
 E-mail: anacabreira12@gmail.com
